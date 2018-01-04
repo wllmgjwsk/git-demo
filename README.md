@@ -12,6 +12,9 @@ church-key brooklyn tumeric woke disrupt pork belly. Roof party synth asymmetric
 chartreuse. Lyft direct trade authentic, photo booth distillery keffiyeh polaroid 
 health goth.
 
+Check list for fun:
+1. have fun
+
 Succulents godard VHS wolf man braid meh, +1 skateboard chillwave authentic 
 gentrify leggings knausgaard etsy. Keffiyeh adaptogen irony venmo readymade 
 hot chicken viral fixie disrupt meh put a bird on it seitan.
